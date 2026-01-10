@@ -1,0 +1,1 @@
+Testando coisas independentemente por curiosidade, tentando aprender na pratica mesmo
